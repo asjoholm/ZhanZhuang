@@ -44,7 +44,7 @@ Subtle dullness is a common protection mechanism of the mind to blunt any discom
 
 ## Starting progression
 
-The general recommendation is to do 40 minutes a day for health benefits and 60 minutes a day, and for martial artist extend this to 60 minutes a day.
+The general recommendation is to do 40 minutes a day for health benefits and 60 minutes a day for martial artists.
 
 Start with 5 minutes a day, preferably multiple sessions per day for faster progress. Wuji position only. Increase the time with one minute each day until you can do 30-45 minutes.
 
