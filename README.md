@@ -73,3 +73,4 @@ There are also multiple breathing techniques.
 - [The Way of Energy](https://www.amazon.com/Way-Energy-Mastering-Internal-Strength/dp/0671736450)
 - [The Mind Illuminated](https://www.amazon.com/Mind-Illuminated-Meditation-Integrating-Mindfulness/dp/1501156985)
 - [Inside Zhan Zhuang](https://www.amazon.com/Inside-Zhan-Zhuang-Mark-Cohen/dp/0988317885)
+- [Master Lam Kam Chuen on Youtube](https://youtu.be/y07FauHYlmg?t=140)
