@@ -74,3 +74,6 @@ There are also multiple breathing techniques.
 - [The Mind Illuminated](https://www.amazon.com/Mind-Illuminated-Meditation-Integrating-Mindfulness/dp/1501156985)
 - [Inside Zhan Zhuang](https://www.amazon.com/Inside-Zhan-Zhuang-Mark-Cohen/dp/0988317885)
 - [Master Lam Kam Chuen on Youtube](https://youtu.be/y07FauHYlmg?t=140)
+- [INSIDE ZHAN ZHUANG 1a The Nuts and Bolts of Standing Meditation](https://www.youtube.com/watch?v=7uV9SAvG0VU&ab_channel=MarkCohen)
+- [INSIDE ZHAN ZHUANG 1b The Nuts and Bolts of Standing Meditation](https://www.youtube.com/watch?v=oqa_C-LImss&ab_channel=MarkCohen)
+- [INSIDE ZHAN ZHUANG 1c The Nuts and Bolts of Standing Meditation](https://www.youtube.com/watch?v=mPOHB6WYY68&ab_channel=MarkCohen)
